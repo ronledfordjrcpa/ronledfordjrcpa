@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @ronledfordjrcpa (@ronledfordjrcpa)
-- 👀 I’m interested in streamlining small business accounting, ERP implementations, and building tools that simplify financial operations.
+- 👀 Simplifying accounting and ERP for small businesses through practical tools and streamlined processes.
 - 🌱 I’m currently learning Python for Excel, Power BI, and Generative AI for financial services.
 - 💞️ I’m looking to collaborate on accounting automation, ERP migrations, and business process optimization.
 - 📫 How to reach me: ron@ronledfordcpa.com or connect via [LinkedIn](https://www.linkedin.com/in/ronledfordcpa/) or follow me on X (formerly Twitter): [@RonLedfordCPA](https://x.com/RonLedfordJrCPA)  
