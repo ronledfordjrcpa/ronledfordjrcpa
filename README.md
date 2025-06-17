@@ -37,7 +37,7 @@ Licensed CPA • Financial Systems Consultant • ERP Specialist
 
 ---
 
-> *“AI helps, but it can’t fix bad leadership, books, or no butts in seats.” – Ron Ledford Jr CPA*
+> *“AI helps, but it can’t fix stupid, bad books, or no butts in seats.” – Ron Ledford Jr CPA*
 
 
 --->
