@@ -33,7 +33,7 @@ Licensed CPA • Financial Systems Consultant • ERP Specialist
 - **Website**: *(Coming soon)*  
 - **Toptal**: *(Link when approved)*  
 - **LinkedIn**: [linkedin.com/in/ronledfordjrcpa](https://linkedin.com/in/ronledfordjrcpa)  
-- **Email**: [ronledfordjrcpa@outlook.com](mailto:ronledfordjrcpa@outlook.com)  
+- **Email**: [ronledfordjrcpa@outlook.com](mailto:ron@ronledfordcpa.com)  
 
 ---
 
